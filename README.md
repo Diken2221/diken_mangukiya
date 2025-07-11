@@ -1,1 +1,1 @@
-# dikenmangukiya
+diken mangukiya
